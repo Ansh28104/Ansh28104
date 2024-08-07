@@ -1,1 +1,1 @@
-Hey there, I'm Ansh Shah, and I'm passionate about Web Development. Currently, I'm honing my skills and seeking collaborations on exciting projects. You can reach out to me at [insert contact information]. My pronouns are [insert pronouns], and here's a fun fact: [insert fun fact].
+Hey there, I'm Ansh Shah
